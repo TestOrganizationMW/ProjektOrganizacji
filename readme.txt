@@ -1,0 +1,1 @@
+To jakiœ plik zedytowany przez Wader1
